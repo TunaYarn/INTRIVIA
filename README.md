@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [17] Sejauh Ini 
 [Cluster 17 selama ini asik asik bangat anggotanya]
+
+## Harapan Kuliah 
+[Saya berharap untuk lulus 3.5 tahun dan mendapat pengalaman kerja yang banyak] 
